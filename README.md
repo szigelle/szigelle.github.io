@@ -1,3 +1,3 @@
-# szigelle.github.io
+# Danielle Szigeti | szigelle
 
-##This is where i'm going to try and set up a personal page to link to szigelle.com!
+Hi! I'm a Master's Student at UW Tacoma. My favorite color is pink. I'll be updating this page to serve as a portfolio hub. :)
